@@ -1,4 +1,4 @@
 # BulletBox
 
-By Alex, Lado, and Nate\n
-Hire us Deca Games
+By Alex, Lado, and Nate  
+Hire us Deca Games :)
